@@ -1,6 +1,7 @@
 ## Shrewsbury team meeting ##
 It was great to meet all of the Digital team for a face to face-to-face meeting on Monday. We discussed what’s gone well, challenges ahead and any new ideas going forward. As usual, the team had a lot to discuss and plan. We rewarded ourselves with an after meeting pizza.
 
+
 Phil and the team from DXW have been working on acid sensitive river catchment content this week. Phil has also updated the grey squirrel content of our website as this will soon become a hot topic, due to changes in legislation
 
 **Water abstraction getting ready for SRoC (Strategic Review of Charges)**

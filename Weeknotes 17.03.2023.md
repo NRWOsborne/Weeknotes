@@ -14,4 +14,5 @@ Andrew and Shaun have been working with permitting team and Dave Jones to amend 
 +	Doing the prep to roll out the Flood Risk Map and Coastal Erosion Map on their new platforms for next week
 +	Meeting with Defra to discuss user research about ‘Get a fishing rod licence’ in Welsh
 
+
 Sophie and Laura have been busy doing an audit of all the comms content we have. They have been unpublishing content they know is no longer needed and will be talking to the team about the next steps.

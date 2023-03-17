@@ -12,15 +12,14 @@ The completion of this work will also mean all water quality application forms a
 
 We did find time on Monday for a trip to Shrewsbury to meet up in person and talk over successes, issues and questions. Thanks to Catrin for taking the time out to join us. We had a swift couple in the Loggerheads afterwards (other pubs are available) and then a pizza in Oil and Dough (no other pizza emporiums should be considered).
 
-
-
 Phil and the team from DXW have been working on acid sensitive river catchment content this week. Phil has also updated the grey squirrel content on our website as this will soon become a hot topic, due to changes in legislation.
 
 In the world of user research, James’ week involved:
-+two and a half days of a service design course with Lucinda
-+arranging user interviews about starting to work with NRW
-+doing the prep to roll out the Flood Risk Map and Coastal Erosion Map on their new platforms next week
-+meeting with Defra to discuss user research about ‘Get a fishing rod licence’ in Welsh
+
++ two and a half days of a service design course with Lucinda
++ arranging user interviews about starting to work with NRW
++ doing the prep to roll out the Flood Risk Map and Coastal Erosion Map on their new platforms next week
++ meeting with Defra to discuss user research about ‘Get a fishing rod licence’ in Welsh
 
 Sophie and Laura have been busy doing an audit of all the comms content we have. They have been unpublishing content they know is no longer needed and will be talking to the team about the next steps.
 
